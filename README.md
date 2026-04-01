@@ -1,5 +1,4 @@
-
-🔭 I’m currently working on being the best Data Practitioner<br>🤝 I’m looking for people to code with me <br>🌱 I’m currently learning B.Sc in Computer Science and Statistics<br>💬 Ask me about music and basketball as well :)<br>⚡ Fun fact: Alter Bridge is the most underrated band ever
+Fun fact: Alter Bridge is the most underrated band ever
 
 
 ## 🌐 Socials:
